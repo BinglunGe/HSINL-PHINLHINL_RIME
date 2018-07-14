@@ -1,1 +1,27 @@
 # HSINL-PHINLHINL_RIME
+    XANXHIUIJ PHINLHINL 01234
+    XUNXXEZ   PHINLHINL QLZJX
+    B P  M F D T  N L  G K  H
+    P PH M F T TH N L  K KH X
+    ZCS J Q X  ZHCHSH  R    0
+    ZCS HZHCHS ZHCHSH  R    H
+      A  O  E  EH AI EI AO OU
+      A  O  E  EH AI EI AU EU
+    **IIA  *IE IE IAI  IAOIOU
+    I IA    IE IEHIAI  IAUIEU
+    U UA          UAIUEI
+    U UA          UAIUEI
+    YU         YUEH
+    IUI        IUIEH
+       AN   EN ANG ENG ONG -R
+       AN   EN ANG ENG UNG -R
+    I IAN      IANGIENG
+    I IAN      IANGIENG
+    U UAN   UENUANGUENG
+    U UAN
+    YUYUAN
+    IUIIUIAN           IUIUNG
+    *BI RI ZI ZHI
+     PI RR ZR ZHRR
+    *"HIE?" HIUIUNGX HIUIZ
+     FANGLHIANZ.
